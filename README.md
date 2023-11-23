@@ -1,1 +1,2 @@
 # LocalvsRemoto
+Cambios del gcuadra
