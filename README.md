@@ -10,8 +10,13 @@ LaDelGuille
 
 Este cambio lo estoy en la rama de Jesus
 
+LaDelGuille2
 Este cambio lo estoy en la rama de Jesus
 
 Como una ola, tu amor se fue como una ola...
 Se nos rompió el amor de tanto usarlo...
+
+Como una ola, tu amor se fue como una ola...
+Se nos rompió el amor de tanto usarlo...
+
 
