@@ -7,3 +7,11 @@ Cambios del gcuadra
 este cambio es de Jesús
 
 LaDelGuille
+
+Este cambio lo estoy en la rama de Jesus
+
+Este cambio lo estoy en la rama de Jesus
+
+Como una ola, tu amor se fue como una ola...
+Se nos rompió el amor de tanto usarlo...
+
